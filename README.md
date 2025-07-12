@@ -4,14 +4,23 @@
 https://x3xtqfjuve.feishu.cn/docx/Ft1ndi9tgoPa0Dxee1Ycr1N8nlg
 
 抖音AI美女无人直播，收礼物到手软，单号日入1000+，保姆级教程 https://pan.baidu.com/s/1REA0fFJ1b0xk339-WjLpMg?pwd=8888
+
 卖课特训营实战运营班：拍摄+录制课程实操+上架课程+卖课直播实操 https://pan.baidu.com/s/11_x8DBoCbEUxOk6tYo_9Ew?pwd=8888
+
 免费公开！外面收费3980的APP分成计划，单日破万播放，收益1000+ https://pan.baidu.com/s/1IapJHG5aFf_BFJG4NXeWKQ?pwd=8888
+
 一款软件深度去重，一个视频全网分发，搬运轻松月入过万 https://pan.baidu.com/s/1Vw3jzXGXDAWutsUZ6UGM6A?pwd=8888
+
 新蓝海项目，支付宝小店，搬运商品和视频，实现月入一万+ https://pan.baidu.com/s/1JYfW_5QIBKEZgbOfn8bAEg?pwd=8888
+
 “飞吧龙骑士手游”单条视频变现1w+，小白一部手机无脑操作，可批量操作，暴力变现 https://pan.baidu.com/s/1dXPeW5LAzcdT9WRMe1sUBQ?pwd=8888
+
 快手热舞美女直播，24小时全天挂机被动收入，可矩阵 月入5W+别人卖2888热门项目 https://pan.baidu.com/s/1sRdteR_HnBRhylnYqBhzuQ?pwd=8888
+
 视频号AI一键原创爆款视频，500播放200收益，小白稳赚8000+ https://pan.baidu.com/s/1gYoaUgHpPoxvtO976KlB1A?pwd=8888
+
 PPT小红书蓝海项目，每天十分钟，一月两万+喂饭式教学，跟着做就行 https://pan.baidu.com/s/1KSMwNS3rzSsdk5y12TuFMA?pwd=8888
+
 最新抖音直播间私信截流打法，配合跳转 日引1000+ https://pan.baidu.com/s/1Vi3H8pkMSMrFdw6CqQmzJA?pwd=8888
 
 
