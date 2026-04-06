@@ -3,6 +3,8 @@
 程序员副业收集
 https://x3xtqfjuve.feishu.cn/docx/Ft1ndi9tgoPa0Dxee1Ycr1N8nlg
 
+一人公司指南:[帮你启动一人公司赚钱的40个项目](one-person-company.md)
+
 抖音AI美女无人直播，收礼物到手软，单号日入1000+，保姆级教程 https://pan.baidu.com/s/1REA0fFJ1b0xk339-WjLpMg?pwd=8888
 
 卖课特训营实战运营班：拍摄+录制课程实操+上架课程+卖课直播实操 https://pan.baidu.com/s/11_x8DBoCbEUxOk6tYo_9Ew?pwd=8888
