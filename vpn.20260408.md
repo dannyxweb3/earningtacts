@@ -20,3 +20,8 @@ LAX.AN4.EB.TINY
 Eyeball (EB) 线路：此配置文件包含一级路由 + 为中国路由所做的合理努力，通过 CMIN2 或类似的中国 ISP 。
 $9.9/月
 地址: https://i.260512.xyz/dmit245
+
+## 其他方案
+1.购买 VPS 自建 ( https://jichangtuijian.com/vps)
+2.购买直连机场,TG 上的一些脸熟的直连机场 ( https://jichanggo.com/vlesshysteria2)
+--https://t.me/jichangtj
