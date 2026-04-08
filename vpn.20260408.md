@@ -23,5 +23,6 @@ $9.9/月
 
 ## 其他方案
 1.购买 VPS 自建 ( https://jichangtuijian.com/vps)
+
 2.购买直连机场,TG 上的一些脸熟的直连机场 ( https://jichanggo.com/vlesshysteria2)
 --https://t.me/jichangtj
